@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ABHISHEK KUMAR
+- 👀 I’m interested in DATA SCIENCE AND DATA ANALYST
+- 🌱 I’m currently learning PYTHON MACHINE LEARNING NLP DEEP LEARNING SELENIUM TABLEAU
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 7979762453 / abhisheklavanya143@gmail.ccom
